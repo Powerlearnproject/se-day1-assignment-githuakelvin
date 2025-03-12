@@ -6,6 +6,10 @@ Software Engineering Day1 Assignment
 
 Explain what software engineering is and discuss its importance in the technology industry.
 
+gfvggjhldfghjgjhkmn.
+
+
+
 
 Identify and describe at least three key milestones in the evolution of software engineering.
 
